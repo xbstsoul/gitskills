@@ -1,7 +1,7 @@
 
 catGod
 
-gogogo!
+gogogo!catGod kawayiiii.
 
 change it one
 
